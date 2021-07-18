@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @YKavishka22
 - 👀 I’m interested in Tunneling...
 - 🌱 I’m currently learning on school
-- 💞️ I’m looking to collaborate on REZORTH
+- 💞️ I’m looking to collaborate on Pipena Kakulu
 - 📫 How to reach me ...😬
 
 <!---
